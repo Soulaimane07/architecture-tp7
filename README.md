@@ -1,8 +1,4 @@
 ﻿# architecture-tp7
 
- 
 
-
-
-Uploading TP7.mp4…
 
